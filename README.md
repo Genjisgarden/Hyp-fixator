@@ -5,7 +5,7 @@ ___
 
 ___
 
-` Call me Genji or Kayvi
+` Call me **Genji or Kayvi**
 
 ` They/Them preffered
 
