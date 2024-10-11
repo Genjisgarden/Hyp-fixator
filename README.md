@@ -60,7 +60,7 @@ ___
 
 ` SMG (psst read the rentry if u want more info. [rentry](rentry.co/smg-callout) )
 
-` Highly sexual people and therefore jokes, it gets tiring
+` Highly sexual people and jokes, it gets tiring
 
 ___
 
