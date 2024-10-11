@@ -5,11 +5,11 @@ ___
 
 ___
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ` Call me Genji or Kayvi
+` Call me Genji or Kayvi
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ` They/Them preffered, He/Him if needed
+ㅤㅤㅤㅤ` They/Them preffered, He/Him if needed
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ` Ponytown user 👍
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤ` Ponytown user 👍
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ`Don't be shy, sign my [Atabook](https://genjisgarden.atabook.org/)
 
@@ -17,23 +17,23 @@ ___
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤBefore you interact;
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ` Chronically in the Phighting! corner
+` Chronically in the Phighting! corner
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ` I am a Rocket (Specifically PJ) and Katana C!Link/Synpath. Please be respectful when interacting with me when i'm in my PJ/Katana skins and don't act like i'm just the character or ㅤㅤㅤsomething weird like that. Thanks !
+ㅤㅤㅤㅤ` I am a Rocket (Specifically PJ) and Katana C!Link/Synpath. Please be respectful when interacting with me when i'm in my PJ/Katana skins and don't act like i'm just the character or ㅤㅤㅤsomething weird like that. Thanks !
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ`Doubles please iwc ! I don't hate or disrespect them (obviously) but they do make me feel a little uncomfortable.
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤ`Doubles please iwc ! I don't hate or disrespect them (obviously) but they do make me feel a little uncomfortable.
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ` I LOOOOOOOVE MAKING FRIENDS !!! If I were a dragon my hoard would be friends I love being silly with people !!!!
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ`I use a ton of tone tags in my text, so please be aware and be patient please! (I mostly use /Silly, /Lh, and /J)
+`I use a ton of tone tags in my text, so please be aware and be patient please! (I mostly use /Silly, /Lh, and /J)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ` I'm very open to interactions unless I have AFK, DNI, etc in my name
+ㅤㅤㅤㅤ` I'm very open to interactions unless I have AFK, DNI, etc in my name
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ` If I have anything in my name that references me being offtab (Gaming, Drawing/Arftight etc.) Replies will be slow
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤ` If I have anything in my name that references me being offtab (Gaming, Drawing/Arftight etc.) Replies will be slow
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ`I do not have C+H in my name at any point- please don't randomly come up to me and cuddle (Friends/Friends of friends are the exception here!)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ` Similar thing to venting, please don't talk to me and then suddenly switch to venting without warning me first (Friends can vent to me any time unless I specify they can't.)
+` Similar thing to venting, please don't talk to me and then suddenly switch to venting without warning me first (Friends can vent to me any time unless I specify they can't.)
 
 ___
 
