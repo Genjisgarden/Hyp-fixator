@@ -8,7 +8,7 @@ ___
 
 ` HI TO MY BESTIE [LOVELACE](https://github.com/ONE-TIMES-ONE) AND MY AWESOME SIBLING [VIZ](https://github.com/Vizerp)
 
-` I LOVELOVELOVELOVELOVELOVE MY HUSBAND [S'MORE](https://summerxlogical.carrd.co/) TOO!!! HIII
+` I LOVELOVELOVELOVELOVELOVE MY HUSBAND [S'MORE](https://summerxlogical.carrd.co/) TOO!!! HIII!!!!
 
 ` They/Them
 
