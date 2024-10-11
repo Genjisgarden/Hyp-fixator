@@ -6,7 +6,7 @@ ___
 
 ` Call me **Genji or Kayvi**
 
-` HI TO MY BESTIE [LOVELACE](https://github.com/ONE-TIMES-ONE) AND MY AWESOME SIBLING [VIZ](https://github.com/Vizerp)
+` HI TO MY BESTIE [LOVELACE](https://github.com/ONE-TIMES-ONE) (All graphics by her!) AND MY AWESOME SIBLING [VIZ](https://github.com/Vizerp) (They taught me how to do this <3)
 
 ` I LOVELOVELOVELOVELOVELOVE MY HUSBAND [S'MORE](https://summerxlogical.carrd.co/) TOO!!! HIII!!!!
 
