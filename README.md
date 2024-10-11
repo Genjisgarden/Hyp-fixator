@@ -6,6 +6,10 @@ ___
 
 ` Call me **Genji or Kayvi**
 
+` HI TO MY BESTIE [LOVELACE](https://github.com/ONE-TIMES-ONE) AND MY AWESOME SIBLING [VIZ](https://github.com/Vizerp)
+
+` I LOVELOVELOVELOVELOVELOVE MY BF [S'MORE](https://summerxlogical.carrd.co/) TOO!!! HIII
+
 ` They/Them
 
 ` Ponytown user 👍
@@ -19,8 +23,6 @@ ___
 ` In the Phighting! corner
 
 ` I am a Rocket (Specifically PJ) and Katana C!Link/Synpath. Please be respectful
-
-` Doubles please iwc !
 
 ` I use tone tags
 
