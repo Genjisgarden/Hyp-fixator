@@ -19,7 +19,7 @@ ___
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ` Chronically in the Phighting! corner
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ` I am a Rocket (Specifically PJ) and Katana C!Link/Synpath. Please be respectful when interacting with me when i'm in my PJ/Katana skins and don't act like i'm just the character or something weird like that. Thanks !
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ` I am a Rocket (Specifically PJ) and Katana C!Link/Synpath. Please be respectful when interacting with me when i'm in my PJ/Katana skins and don't act like i'm just the character or ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤsomething weird like that. Thanks !
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ`Doubles please iwc ! I don't hate or disrespect them (obviously) but they do make me feel a little uncomfortable.
 
@@ -57,7 +57,7 @@ ___
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ`People above 18 and under 14, if you are 18 and/or 14 you're on thin ice please iwc (unless friends/I do)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ`Iwec if you're a fan of Invader Zim, Deadplate, Beetlejuice, Dandy's world (this includes avid players of the game even if they "don't support", playing the game directly supports the creators), TADC or Countryhumans (you're alr if you don't hvyship), personal reasons
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ`Iwec if you're a fan of Invader Zim, Deadplate, Beetlejuice, Dandy's world (this includes avid players of the game even if they "don't support", playing the game directly supports the ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤcreators), TADC or Countryhumans (you're alr if you don't hvyship), personal reasons
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ`SMG, ifykyk (psst read the rentry if u want more info. [rentry](rentry.co/smg-callout) )
 
