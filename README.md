@@ -69,7 +69,7 @@ ___
 
 ` Interests; Phighting! , Regretavator, COTL (Cult of the Lamb), Blocktales, Calamity Corp, probably more
 
-`My active [Tumblr account](https://www.tumblr.com/blog/hyp-fixator)
+` My active [Tumblr account](https://www.tumblr.com/blog/hyp-fixator)
 
 ___
 
