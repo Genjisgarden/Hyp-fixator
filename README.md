@@ -1,5 +1,5 @@
 ___
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![topheader](https://media.discordapp.net/attachments/1264351072991055942/1291521343979917322/image.png?ex=670af27b&is=6709a0fb&hm=fb7f2efb994e47dcce3a58ec1e0dd47e701e3a5edf7f885aec7aff844c1519aa&=&format=webp&quality=lossless&width=1600&height=365)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤ![topheader](https://media.discordapp.net/attachments/1264351072991055942/1291521343979917322/image.png?ex=670af27b&is=6709a0fb&hm=fb7f2efb994e47dcce3a58ec1e0dd47e701e3a5edf7f885aec7aff844c1519aa&=&format=webp&quality=lossless&width=1600&height=365)
 ___
 # How the hell did I end up here.
 
@@ -73,5 +73,5 @@ ___
 
 # See you on the other side.
 ___
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![bottomheader](https://media.discordapp.net/attachments/1264351072991055942/1291521553065840740/image.png?ex=670af2ad&is=6709a12d&hm=4c2489a9d0ba7eabf49a9d09151c6f8483bc310d8da65d019f8eaa38dc55e72a&=&format=webp&quality=lossless&width=1375&height=3500)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤ![bottomheader](https://media.discordapp.net/attachments/1264351072991055942/1291521553065840740/image.png?ex=670af2ad&is=6709a12d&hm=4c2489a9d0ba7eabf49a9d09151c6f8483bc310d8da65d019f8eaa38dc55e72a&=&format=webp&quality=lossless&width=1375&height=3500)
 ___
