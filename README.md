@@ -7,7 +7,7 @@ ___
 
 ` Call me **Genji or Kayvi**
 
-` They/Them preffered
+` They/Them
 
 ` Ponytown user 👍
 
@@ -15,29 +15,27 @@ ___
 
 ___
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤBefore you interact;
+### Before you interact;
 
-` Chronically in the Phighting! corner
+` In the Phighting! corner
 
 ` I am a Rocket (Specifically PJ) and Katana C!Link/Synpath. Please be respectful
 
-`Doubles please iwc ! I don't hate or disrespect them (obviously) but they make me feel a little uncomfortable.
+` Doubles please iwc !
 
-` I LOOOOOOOVE MAKING FRIENDS !!! I love being silly with people !!!!
-
-`I use tone tags in my text, so be patient please! (I use /Silly, /Lh, and /J)
+` I use tone tags
 
 ` I'm open to interactions unless I have AFK, DNI, etc in my name
 
 ` If I have anything in my name that references me being offtab (Gaming, Drawing/Arftight etc.) Replies will be slow
 
-`Please don't randomly come up to me and cuddle (Friends/Friends of friends are the exception here!)
+` Please don't randomly come up to me and cuddle (Friends/Friends of friends are the exception here!)
 
-`Similar thing to venting, don't talk to me and then suddenly switch to venting without warning me (Friends can vent to me any time)
+` Similar thing to venting, don't talk to me and then suddenly switch to venting without warning me (Friends can vent to me any time)
 
 ___
 
-Status Meanings;
+### Status Meanings;
 
 `Online; Barely used.
 
@@ -51,7 +49,7 @@ Status Meanings;
 
 ___
 
-DNI CRITERIA;
+### DNI CRITERIA;
 
 `Overall the basic DNI criteria (Homophobic, Transphobic, P3d0s, AI bros, etc.)
 
@@ -65,7 +63,7 @@ DNI CRITERIA;
 
 ___
 
-Extra/Socials;
+### Extra/Socials;
 
 `If you're a friend of a friend pls interact !!
 
@@ -75,7 +73,7 @@ Extra/Socials;
 
 ___
 
-## See you on the other side.
+# See you on the other side.
 
 ![bottomheader](https://media.discordapp.net/attachments/1264351072991055942/1291521553065840740/image.png?ex=670af2ad&is=6709a12d&hm=4c2489a9d0ba7eabf49a9d09151c6f8483bc310d8da65d019f8eaa38dc55e72a&=&format=webp&quality=lossless&width=1375&height=3500)
 ___
