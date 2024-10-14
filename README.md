@@ -4,7 +4,7 @@ ___
 # How the hell did I end up here.
 
 
-` Call me **Genji or Kayvi**
+` Call me **Genji, Kayvi or the name of my pony**
 
 ` HI TO MY BESTIE [LOVELACE](https://github.com/ONE-TIMES-ONE) (All graphics by her!) AND MY AWESOME SIBLING [VIZ](https://github.com/Vizerp) (They taught me how to do this <3)
 
