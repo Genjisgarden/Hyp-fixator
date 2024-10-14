@@ -26,11 +26,11 @@ ___
 
 ` I use tone tags
 
-` I'm open to interactions unless I have AFK, DNI, etc in my name
+` I'm open to interactions unless I have IWC/EC, DNI, etc in my name
 
 ` If I have anything in my name that references me being offtab (Gaming, Drawing/Arftight etc.) Replies will be slow
 
-` Please don't randomly come up to me and cuddle (Friends/Friends of friends are the exception here!)
+` Please don't randomly come up to me and cuddle (Moots/Friends of Moots are the exception here!)
 
 ` Similar thing to venting, don't talk to me and then suddenly switch to venting without warning me (Friends can vent to me any time)
 
