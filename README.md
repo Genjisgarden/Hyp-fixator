@@ -22,7 +22,7 @@ ___
 
 ` In the Phighting! corner
 
-` I am a Rocket (Specifically PJ) and Katana C!Link/Synpath. Please be respectful
+` I am a Rocket (Specifically PJ) and Katana C!Link/Synpath. Please be respectful. You can call me Katana or Rocket if I'm in those skins
 
 ` I use tone tags
 
