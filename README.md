@@ -1,5 +1,5 @@
 ___
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤ![topheader](![image](https://github.com/user-attachments/assets/dfd23e3b-2209-4244-8396-756ee8888bfc)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤ![topheader](https://pasteboard.co/kOEbFcYrDHRa.png)
 )
 ___
 # How the hell did I end up here.
