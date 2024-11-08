@@ -20,7 +20,7 @@ ___
 
 ### Before you interact;
 
-` In the Phighting! corner
+` In the Phighting! corner, LMK area or CRK area (with friends)
 
 ` I am a Rocket (Specifically PJ) and Katana C!Link/Synpath. Please be respectful. You can call me Katana or Rocket if I'm in those skins
 
