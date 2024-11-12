@@ -8,7 +8,7 @@ ___
 
 ` HI TO MY BESTIE [LOVELACE](https://github.com/ONE-TIMES-ONE) (All graphics by her!) MY AWESOME SIBLING [VIZ](https://github.com/Vizerp) (They taught me how to do this <3) AND THE FRENCH FRY [EXO](https://github.com/N4SR1N3)
 
-` I LOVELOVELOVELOVELOVELOVE MY HUSBAND [S'MORE](https://summerxlogical.carrd.co/) TOO!!! HIII!!!!
+` I LOVELOVELOVELOVELOVELOVE MY HUSBAND [S'MORE](https://hyperlasersgreed.carrd.co/#mycriminalrecord) TOO!!! HIII!!!!
 
 ` They/Them
 
